@@ -1,1 +1,2 @@
 # FirstGo
+This would be the second time i am trying something like this, i would like to start of my journey in this coding, advanced, technological, and fast moving world. Before starting I would just like to say like my repository NoobMasterm i really was a noob who literally had not clue and when i say this I really mean it no prior information, hence this would be extra hard for me to understand, but I like to live my life by saying, "Hakuna Mattata".
